@@ -1,4 +1,4 @@
-# hi, I am Yu-Wei Lai...
+# Hi, I am Yu-Wei Lai!
 
 
 
